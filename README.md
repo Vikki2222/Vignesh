@@ -8,11 +8,4 @@ idk Why but i just think it will
 idk why its not uplating there 
 did not work on anything today sotommorow for sure i will
 
-xc;lkjb/lkb
- fmgfhgg
- vnzkxjvhsv
- rjrfsfd.,gm;mg
- sdafn;sldkmd.fmg;ekrmg
-.,fnf
-hj;hgi
-fyhuofh
+.skjhgksjg
